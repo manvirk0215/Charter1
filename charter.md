@@ -14,7 +14,7 @@ must include at
 
 We, the team named Awkward Turtles agree with the Group Charter and will try our best to uphold it.
 Name John Paul Victory Date 10/31/24..
-Name Sofia Kaye Date 10/31/24
+Name Sofia Kaye Date 10/31/24..
 Name Abe Taiwo 10/31/24
 Name _____________________________________ Date _______________
 Name _____________________________________ Date _______________
