@@ -10,3 +10,11 @@
 7. Procedure for handling a member who is not meeting expectations
 must include at least 3 actions before involving the instructor
 8. Signatures: each member must sign their name by typing their name at the bottom of the document.
+
+We, the team named Awkward Turtles agree with the Group Charter and will try our best to uphold it.
+Name John Paul Victory Date 10/31/24
+Name _____________________________________ Date _______________
+Name _____________________________________ Date _______________
+Name _____________________________________ Date _______________
+Name _____________________________________ Date _______________
+
